@@ -6,7 +6,7 @@
 
 - Como ele funciona? Através de sistema de de navegação parecido com arvore genealógica
 
-  ![alt text](C:\Users\ronal\OneDrive\Imagens\Sem título.png)
+  [https://uploaddeimagens.com.br/imagens/iaULuNA]
 
 
 
